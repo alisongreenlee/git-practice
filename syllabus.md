@@ -4,6 +4,9 @@
 
 **BOLD! Pay attention!**
 
+Fall 2019
+T/Th 1:00-3:00PM
+
 ## Readings
 - [Aldus Manutius und seine Zeitgenossen in Italien und Deutschland](https://books.google.com/books?id=YoZWAAAAcAAJ&pg=PP9#v=onepage&q&f=false)
 - [Aldus Manutius and the development of Greek script & type in the fifteenth century](https://elibrary.wayne.edu/record=b1295079~S47)
